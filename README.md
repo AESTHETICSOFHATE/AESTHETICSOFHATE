@@ -1,5 +1,1 @@
-- ryn here!!!
-- ryn / anonymous ! !
-- they/it/he/ze
-- genderfluid abrosexual 🐟
-- #1 gabriel ultrakill fan! ! !
+dont have to read , y u reading?
